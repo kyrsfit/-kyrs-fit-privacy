@@ -27,7 +27,7 @@
   This app is not directed at children under 13. We do not knowingly collect data from children.                        
                                               
   ## Contact                                                                                                            
-  For questions about this privacy policy, contact us at: ofsp8090@gmail.com
+  For questions about this privacy policy, contact us at: kyrsfit@gmail.com
                                                                                                                         
   ## Changes                              
   We may update this policy. Continued use of the app means you accept any changes.                                     
