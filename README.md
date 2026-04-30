@@ -1,4 +1,4 @@
-# Radiance Fit — Privacy Policy                                                                                       
+# Kyrs Fit — Privacy Policy                                                                                       
                                                                                                                         
   **Last updated: April 23, 2026**                              
                                                                                                                         
